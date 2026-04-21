@@ -1,0 +1,1 @@
+# OneKey-Switch-Lang-Copy-Paste
